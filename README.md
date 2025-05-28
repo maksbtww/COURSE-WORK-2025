@@ -1,1 +1,1 @@
-Яедекс Диск с видео работы: https://disk.yandex.ru/i/4qJnjXhpIVjoMA
+Яндекс Диск с видео работы: https://disk.yandex.ru/i/4qJnjXhpIVjoMA
